@@ -1,4 +1,4 @@
-- 👋 Hi, We are The Cloud Cybersecurity Engineering Fellows 2023 at The Knowledge House @ctrtkh2023
+- 👋 Hi, We are The Cloud Cybersecurity Engineering Fellows 2023 at The Knowledge House @ctrtkh2023 👋
 
 ## Cybersecurity Fellows 2022-2023 at The Knowledge House 
 
